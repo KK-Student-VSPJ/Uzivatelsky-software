@@ -11,3 +11,8 @@ např. Tabulkové procesory ve firmě – analýza dat, reporting...
 Děkuji, s pozdravem
 
 Kopecký Karel
+
+
+Dobrý den,
+téma práce vám schvaluji.
+Hana Vojáčková
